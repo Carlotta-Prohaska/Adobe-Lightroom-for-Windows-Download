@@ -1,0 +1,1 @@
+# Adobe-Lightroom-for-Windows-Download
